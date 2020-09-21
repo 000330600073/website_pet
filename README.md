@@ -7,8 +7,8 @@ articles on the protection of animals for all time 1,320,000
 4) 2020 - 20 400 - There is no single Law on the Responsible Treatment of Animals in the Republic of Kazakhstan. Moreover, the practice of animal protection organizations and volunteers shows that often existing legislative acts are ineffective in protecting animal rights.
 
 
-1) Relevant - Many countries have enacted protection laws so results have decreased,
+Relevant - Many countries have enacted protection laws so results have decreased,
 But the relevance remains in those countries in which the law was not spun, for example, Kazakhstan.
-2) Interesting - many people who have pets and even those who do not are interested
-3) In demand - in Kazakhstan in recent years, it has been in demand due to public resonance on articles about animal abuse
-4) Achievable - we believe that with the common efforts and efforts of bloggers, it will be possible to cause the intended result.
+Interesting - many people who have pets and even those who do not are interested
+In demand - in Kazakhstan in recent years, it has been in demand due to public resonance on articles about animal abuse
+Achievable - we believe that with the common efforts and efforts of bloggers, it will be possible to cause the intended result.
